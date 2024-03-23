@@ -1,1 +1,1 @@
-[## CHECK OUT MY RESUME](https://lyusufdeniz.github.io/resume/)
+[ CHECK OUT MY RESUME](https://lyusufdeniz.github.io/resume/)
